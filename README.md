@@ -15,7 +15,7 @@
 
 - 📫 Reach me at *kumarrohitsingh824@gmail.com*
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1M3UcghhRE2JjPQk9heP4_Q7Bv-vFeot3/view?usp=share_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1ud3M02WjPbepaGHCTtZMiJDwv7t-S8vG/view?usp=share_link)
 
 - ⚡ Fun fact *In love with Tech ♥*
 
